@@ -1,5 +1,5 @@
-# gengus-osu-skin-remake-collection-thing-idk
-## gengu's skin remake collection
+# gengus-and-silvers-osu-skin-remake-collection-thing-idk
+## gengu's (and silver's) skin remake collection
 
 ### idk what to put here
 
