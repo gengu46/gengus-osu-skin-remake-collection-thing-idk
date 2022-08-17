@@ -17,3 +17,36 @@
 
 # [DrenchedProgram](https://www.mediafire.com/file/x5asgufbpjgiozo/-_%2528%2529_DrenchedProgram_Remake_%2528%2529_-.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185204913-a308c4ee-3c72-4841-a754-30c057119836.png)
+
+# [Kanna Non-weeb](https://www.mediafire.com/file/fhbph1wczzitclt/-_%2523-K-_Kanna_%2528Non-weeb%2529.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185207636-22ce102d-8a38-4c4d-bb9f-b26a3240a351.png)
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
