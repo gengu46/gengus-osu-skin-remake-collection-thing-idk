@@ -1,7 +1,7 @@
 # gengus-osu-skin-collection-thing-idk
 ## gengu's skin collection
 
-### some remakes and edits
+### some remakes, edits and skins ig
 
 # [Aristia(Edit)Aireu](https://www.mediafire.com/file/13jxmzki9j0n0xp/Aristia%2528Edit%2529Aireu.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/184693991-6bdd7648-a866-4221-8a2f-1ee35bfdd620.png)
@@ -41,6 +41,57 @@
 
 # [filsdelama](https://www.mediafire.com/file/mlmxcoyknrmx30x/filsdelama.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185216030-3cd7ba09-9669-4d7b-a889-a3b5feb15e46.png)
+
+# [Forestie (idk)](https://www.mediafire.com/file/gsjtbtytdzw4g5x/Forestie.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185218556-0e7f858b-860f-4c56-8ddf-5f5422a799d6.png)
+
+# [BTMC Planets Huntaa](https://www.mediafire.com/file/p7fd6wu467r3pe8/Huntaa%2527s_Edit_%2528_BTMC_%25E2%258C%259EFreedom_Dive__%25E2%2586%2593%25E2%258C%259D%2529.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185221245-289c5862-dfeb-4a17-b877-172f9cdf61bd.png)
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
+
+# []()
+![image]()
 
 # []()
 ![image]()
