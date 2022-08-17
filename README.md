@@ -24,8 +24,8 @@
 # [- P . L . A . N . E . T  _ S . H . A . P . E . R - (OLD)](https://www.mediafire.com/file/4t5q31tdx2tfrib/-_P_._L_._A_._N_._E_._T_S_._H_._A_._P_._E_._R_-_%2528OLD%2529.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185208644-a8433c2f-2a9e-41c5-b000-ee826501e197.png)
 
-# []()
-![image]()
+# [((P R I Z M C L I C K S)) edit](https://www.mediafire.com/file/l2hpf6y27gduj26/%2528%2528P_R_I_Z_M_C_L_I_C_K_S%2529%2529.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185209528-e0630cae-ccd8-4e43-a092-62563886afbd.png)
 
 # []()
 ![image]()
