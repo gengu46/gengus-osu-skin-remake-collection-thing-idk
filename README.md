@@ -48,14 +48,14 @@
 # [BTMC Planets Huntaa](https://www.mediafire.com/file/p7fd6wu467r3pe8/Huntaa%2527s_Edit_%2528_BTMC_%25E2%258C%259EFreedom_Dive__%25E2%2586%2593%25E2%258C%259D%2529.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185221245-289c5862-dfeb-4a17-b877-172f9cdf61bd.png)
 
-# []()
-![image]()
+# [karlixon](https://www.mediafire.com/file/jyqd1kn3pmj3age/karlixon.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185223767-da0aad35-7dd1-46a6-b227-00c503bf6ff9.png)
 
-# []()
-![image]()
+# [lifeline nm (idk i thought it was lifeline)](https://www.mediafire.com/file/z9ctbllin4okyia/lifeline_nm.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185225072-08a48d1c-21cb-4e4c-b820-ceda5e8c8e72.png)
 
-# []()
-![image]()
+# [lifeline+ensalda](https://www.mediafire.com/file/mcz915q585y34bs/lifeline%252Bensalda.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185225595-976b4e46-9c47-4a73-8b69-19882ad91773.png)
 
 # []()
 ![image]()
