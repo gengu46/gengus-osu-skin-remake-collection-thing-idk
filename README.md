@@ -21,8 +21,8 @@
 # [Kanna Non-weeb](https://www.mediafire.com/file/fhbph1wczzitclt/-_%2523-K-_Kanna_%2528Non-weeb%2529.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185207636-22ce102d-8a38-4c4d-bb9f-b26a3240a351.png)
 
-# []()
-![image]()
+# [- P . L . A . N . E . T  _ S . H . A . P . E . R - (OLD)](https://www.mediafire.com/file/4t5q31tdx2tfrib/-_P_._L_._A_._N_._E_._T_S_._H_._A_._P_._E_._R_-_%2528OLD%2529.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185208644-a8433c2f-2a9e-41c5-b000-ee826501e197.png)
 
 # []()
 ![image]()
