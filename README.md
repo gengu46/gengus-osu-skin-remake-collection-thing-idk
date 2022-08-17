@@ -27,20 +27,20 @@
 # [((P R I Z M C L I C K S)) edit](https://www.mediafire.com/file/l2hpf6y27gduj26/%2528%2528P_R_I_Z_M_C_L_I_C_K_S%2529%2529.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185209528-e0630cae-ccd8-4e43-a092-62563886afbd.png)
 
-# []()
-![image]()
+# [AMOGUS](https://www.mediafire.com/file/isctci8danr4p6r/AMOGUS.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185211531-5a74c10d-7fb2-4e57-b778-199e6cf5132c.png)
 
-# []()
-![image]()
+# [david](https://www.mediafire.com/file/wep33vy7i105yzr/david.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185212515-f9cf6aa2-460f-4dcf-af19-ed33c4786a03.png)
 
-# []()
-![image]()
+# [Ekoro](https://www.mediafire.com/file/4ib914u44aispyd/Ekoro.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185213635-f69fe722-928a-4900-8fec-f2331bc45ca9.png)
 
-# []()
-![image]()
+# [fiery edit](https://www.mediafire.com/file/pnt9iof1l3d8i31/fiery_edit.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185215015-a9050bce-457e-456f-b033-7629b717dab7.png)
 
-# []()
-![image]()
+# [filsdelama](https://www.mediafire.com/file/mlmxcoyknrmx30x/filsdelama.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185216030-3cd7ba09-9669-4d7b-a889-a3b5feb15e46.png)
 
 # []()
 ![image]()
