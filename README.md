@@ -72,17 +72,23 @@
 # [mvrko whitecat](https://www.mediafire.com/file/lb221kwjvu2mfzy/mvrko_whitecat.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185464233-237aa428-5fbd-4e5a-9eb0-b90b9342678e.png)
 
-# []()
+# [Neypho (Bacon)](https://www.mediafire.com/file/l1v0k090ksxx3ft/Neypho_%2528Bacon%2529.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185701151-db121f7a-c8af-4c46-96c7-7e54b2ec3342.png)
 
-# []()
+# [ninerik](https://www.mediafire.com/file/m3tq7ye2tvu1im6/ninerik.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185703958-19c3262c-e172-4adb-a0e9-2481a01cf360.png)
 
-# []()
+# [Noshiro B](https://www.mediafire.com/file/83scfcew4kmlx2s/Noshiro_B.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185705682-8eee6fff-a3a1-4f42-bf59-3b6a2d542371.png)
 
-# []()
+# [Noshiro G](https://www.mediafire.com/file/jqv0q4fl3ck8fei/Noshiro_G.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185707858-a62e3ca1-e08a-4a08-89b2-1cc480ac2879.png)
 
-# []()
+# [Noshiro P](https://www.mediafire.com/file/ki653v0vgp6d4va/Noshiro_P.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185708241-46eec4c8-4f69-4b87-97b8-943608f04cf7.png)
 
-# []()
+# [Noshiro Y](https://www.mediafire.com/file/l312dvt8uar1u7d/Noshiro_Y.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185708412-a9e2a733-763e-455d-b80d-bba0b4afc785.png)
 
 # []()
 
