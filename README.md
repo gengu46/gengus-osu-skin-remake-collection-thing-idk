@@ -105,8 +105,8 @@
 # [Penijima](https://www.mediafire.com/file/5l9zi77sanqywjf/Penijima.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185744659-e644abc0-e27d-4a8d-8f85-77ebe07fa37f.png)
 
-# [Poey](https://www.mediafire.com/file/v44w5ipdwsd3u27/Poey.osk/file)
-![image](https://user-images.githubusercontent.com/111304753/185744939-2feb13e6-213d-4036-8fee-c54faea147d3.png)
+# [Poey](https://www.mediafire.com/file/7jknjywwr35whev/Poey.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/185766829-98d9f171-af1e-424e-8414-83e17ab0b741.png)
 
 # [Mathi DT elohere](https://www.mediafire.com/file/e0pvtofh6hn3g26/Mathi_DT_elohere.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185745373-f1619741-0d48-4620-b84e-670e681a435b.png)
