@@ -1,4 +1,4 @@
-# gengus-osu-skin-collection
+# gengus-osu-skin-collection-thing
 ## gengu's skin collection
 
 ### some remakes, edits and skins ig
