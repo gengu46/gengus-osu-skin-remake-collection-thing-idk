@@ -37,7 +37,7 @@
 ![image](https://user-images.githubusercontent.com/111304753/185213635-f69fe722-928a-4900-8fec-f2331bc45ca9.png)
 
 # [fiery edit](https://www.mediafire.com/file/pnt9iof1l3d8i31/fiery_edit.osk/file)
-![image](https://user-images.githubusercontent.com/111304753/185215015-a9050bce-457e-456f-b033-7629b717dab7.png)
+![image](https://user-images.githubusercontent.com/111304753/185846134-32c38078-9513-4aae-9a1c-bf74adee4a39.png)
 
 # [filsdelama](https://www.mediafire.com/file/mlmxcoyknrmx30x/filsdelama.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185216030-3cd7ba09-9669-4d7b-a889-a3b5feb15e46.png)
@@ -61,7 +61,7 @@
 ![image](https://user-images.githubusercontent.com/111304753/185428908-740fffee-3cd2-41eb-a183-9e2b95dbbe5d.png)
 
 # [Mathi Old](https://www.mediafire.com/file/yd7wcuvnn2a28n0/Mathi_Old.osk/file)
-![image](https://user-images.githubusercontent.com/111304753/185432822-2d9de26a-6805-4d30-a082-a5c01b2b6c11.png)
+![image](https://user-images.githubusercontent.com/111304753/185846351-8010985e-79fa-4c37-80e3-db62805c4120.png)
 
 # [-Gawr Gura-](https://www.mediafire.com/file/5s77pk2lhldvtr2/-Gawr_Gura-.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185434854-0f7edcfe-f1d3-45c0-88da-44172f636ae7.png)
