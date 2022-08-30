@@ -63,8 +63,8 @@
 # [Mathi Old](https://www.mediafire.com/file/yd7wcuvnn2a28n0/Mathi_Old.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185846351-8010985e-79fa-4c37-80e3-db62805c4120.png)
 
-# [-Gawr Gura-](https://www.mediafire.com/file/5s77pk2lhldvtr2/-Gawr_Gura-.osk/file)
-![image](https://user-images.githubusercontent.com/111304753/185434854-0f7edcfe-f1d3-45c0-88da-44172f636ae7.png)
+# [-Gawr Gura-](https://www.mediafire.com/file/mee7mkovnzv3d6d/-Gawr_Gura-.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/187516327-ab916818-1c59-40ab-bf91-c27f1252e22d.png)
 
 # [mrekkmonko](https://www.mediafire.com/file/n2fbvhzwjoys119/mrekkmonko.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185438348-8be7b106-ce8f-48fc-8ce9-9367433d35e0.png)
