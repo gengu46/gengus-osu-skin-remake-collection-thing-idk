@@ -99,7 +99,7 @@
 # [Paraqeet Prodigy](https://www.mediafire.com/file/cw0gbefqzpzfiej/Paraqeet_Prodigy.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185743881-7b2b5227-b93c-4f8f-842b-5d8ff96fbed0.png)
 
-# [Paraqeet SD](https://www.mediafire.com/file/ze2spguba6x6lhy/Paraqeet_SD.osk/file)
+# [Paraqeet SZ](https://www.mediafire.com/file/ze2spguba6x6lhy/Paraqeet_SD.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/185744424-0ed38a99-e477-4ad4-b426-491022e4e237.png)
 
 # [Penijima](https://www.mediafire.com/file/5l9zi77sanqywjf/Penijima.osk/file)
