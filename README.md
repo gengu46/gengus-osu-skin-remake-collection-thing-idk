@@ -219,27 +219,38 @@
 # [AleXPain24](https://www.mediafire.com/file/m21fvvta4n7wl0z/AleXPain24.osk/file)
 ![image](https://user-images.githubusercontent.com/111304753/191083966-c74c519f-1d12-466c-855d-cb74c26325c6.png)
 
-# []()
+# [dark minimal v1.2](https://www.mediafire.com/file/4do8ktopvkehq8h/dark_minimal_v1.2.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191085092-ceecbff1-c208-4ad4-b8d6-a7e97b07f003.png)
 
-# []()
+# [emilialemon](https://www.mediafire.com/file/xdw7hj4t2kdpulq/emilialemon.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191085634-54dbb11c-f0e5-48ef-aa8e-42e3fd365139.png)
 
-# []()
+# [Emperorpenguin83](https://www.mediafire.com/file/5bxd6siccpx6xio/Emperorpenguin83remake.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191086152-73a2e2f4-1096-4753-b464-80c1286945ff.png)
 
-# []()
+# [Maxim](https://www.mediafire.com/file/bo95vhxda2s0bds/Maxim.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191087486-71c6b5c7-dec0-4d63-aa48-04e46bc9d484.png)
 
-# []()
+# [morgan inferno](https://www.mediafire.com/file/ddcrzuox0u9wh71/morgan_inferno.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191089623-822c51af-0628-48dd-9e31-e0da5a9a3559.png)
 
-# []()
+# [Nyuh](https://www.mediafire.com/file/8peheg34fsxarba/Nyuh.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191090873-36a57ffe-9427-4ecb-86f6-2a7396778560.png)
 
-# []()
+# [pongschlap boop 2.0](https://www.mediafire.com/file/ki0d7et8fqg5xsa/pongschlap_boop_2.0.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191091435-1dd6a533-73db-4a8f-9114-bef891f423f4.png)
 
-# []()
+# [shigenobu](https://www.mediafire.com/file/9marhwotsk1zxkv/shigenobu.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191096479-21341702-107c-43d8-beb2-9574f6cdff32.png)
 
-# []()
+# [vlxy](https://www.mediafire.com/file/rucc9b88e37h60w/vlxy.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191099150-3ae423b1-a2ff-4c2c-80a9-0f8f6e57edf0.png)
 
-# []()
+# [Waller Skin](https://www.mediafire.com/file/z16zs5fb0n9jx3p/Waller_Skin.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191099902-d42b200e-089f-43ef-baa4-0a50187845c5.png)
 
-# []()
+# [• MouseEasy](https://www.mediafire.com/file/yzhq7du0rrpsg6u/%25E2%2580%25A2_MouseEasy.osk/file)
+![image](https://user-images.githubusercontent.com/111304753/191106267-11b16852-6474-4e4d-b810-8ad2ac74e08e.png)
 
 # []()
 
